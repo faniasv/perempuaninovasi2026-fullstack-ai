@@ -1,1 +1,0 @@
-# perempuan-inovasi2026-fullstack-ai
